@@ -1,1 +1,2 @@
-![IMG_20240620_132357](https://github.com/user-attachments/assets/65c967e9-c9c9-4ec3-b5a0-ebb23f4ffc6e)
+![](https://github.com/BlockP/blockp.github.io/blob/main/mainPage_assets/LSH.jpg?raw=true)
+![](https://github.com/BlockP/blockp.github.io/blob/main/mainPage_assets/PQY_tg.gif?raw=true)
